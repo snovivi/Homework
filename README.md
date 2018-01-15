@@ -3,12 +3,16 @@
 # Sveta (autobiography)
 Меня зовут Света. Мне 18. Родилась в Омске. Живу в Москве, учусь в Вышке на лингвиста.
 
+Моя любимая цитата: "I learned a long time ago, though — you can’t live other people’s lives. We have to make our own decisions even if we’re wrong." - Arthur Hailey
+
 Немного фактов о себе:
 * занимаюсь танцами с 2-х лет
 * люблю читать, особено русскую классику
 * умею програмировать на 3 языках 
 * в вышке учу испаский, но помимо него немного знаю немецкий и фарси 
 * люблбю готовить
+
+
 
 [vk. link](https://vk.com/id382602195)
 
