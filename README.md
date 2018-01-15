@@ -14,6 +14,8 @@
 
 [instagram.link](https://www.instagram.com/snovivi/?hl=ru)
 
+[telegram.link](https://t.me/snovivi)
+
 ![alt-photo](https://pp.userapi.com/c836638/v836638195/694ae/GLX-Byx6-Yo.jpg)
 
 
