@@ -10,9 +10,9 @@
 * в вышке учу испаский, но помимо него немного знаю немецкий и фарси 
 * люблбю готовить
 
-[vk. link] (https://vk.com/id382602195)
+[vk. link](https://vk.com/id382602195)
 
-[instagram.link] (https://www.instagram.com/snovivi/?hl=ru)
+[instagram.link](https://www.instagram.com/snovivi/?hl=ru)
 
 ![alt-photo](https://pp.userapi.com/c836638/v836638195/694ae/GLX-Byx6-Yo.jpg)
 
