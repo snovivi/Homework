@@ -27,12 +27,6 @@
      
 
 
-
-
-
-
-
-
 **_Ссылки на страницы в социальных сетях, где меня можно найти:_**
 1. Vkontakte
   * [vk. link](https://vk.com/id382602195)
@@ -42,15 +36,7 @@
 
 3. Telegram
   * [telegram.link](https://t.me/snovivi)
-
-[vk. link](https://vk.com/id382602195)
-
-[instagram.link](https://www.instagram.com/snovivi/?hl=ru)
-
-[telegram.link](https://t.me/snovivi)
-
-
-
+  
 
 ![alt-photo](https://pp.userapi.com/c836638/v836638195/694ae/GLX-Byx6-Yo.jpg)
 
